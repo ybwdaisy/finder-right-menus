@@ -1,0 +1,1 @@
+FinderRightMenus [使用条款](https://ybwdaisy.github.io/finder-right-menus/terms-of-use-cn) 和 [隐私政策](https://ybwdaisy.github.io/finder-right-menus/privacy-policy-cn).
