@@ -1,6 +1,6 @@
 # 隐私政策
 
-FinderRightMenus 是一款MacOS Finder 右键菜单扩展工具。
+FinderRightMenus 是一款 MacOS Finder 右键菜单扩展工具。
 
 此隐私政策适用于主应用本身及其应用扩展。
 
