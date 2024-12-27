@@ -14,4 +14,4 @@ FinderRightMenus 应用程序本身不会收集您的任何数据。所有隐私
 
 ## 联系我们
 
-如果您对我们的隐私政策有任何疑问或建议，请随时通过 [ybw_daisy@163.com](mailto: ybw_daisy@163.com) 与我们联系。
+如果您对我们的隐私政策有任何疑问或建议，请随时通过 [ybwdaisy@gmail.com](mailto: ybwdaisy@gmail.com) 与我们联系。

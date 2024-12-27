@@ -16,4 +16,4 @@ We may update this privacy policy. Therefore, it is recommended that you check t
 
 ## Contact us
 
-If you have any questions or suggestions regarding our Privacy Policy, please feel free to contact us at [ybw_daisy@163.com](mailto: ybw_daisy@163.com).
+If you have any questions or suggestions regarding our Privacy Policy, please feel free to contact us at [ybwdaisy@gmail.com](mailto: ybwdaisy@gmail.com).

@@ -12,4 +12,4 @@
 
 ## 联系我们
 
-如果您对我们的使用条款有任何疑问或建议，请随时通过 [ybw_daisy@163.com](mailto: ybw_daisy@163.com) 与我们联系。
+如果您对我们的使用条款有任何疑问或建议，请随时通过 [ybwdaisy@gmail.com](mailto: ybwdaisy@gmail.com) 与我们联系。
